@@ -20,7 +20,7 @@
 
 Contact me on <img src='https://cdn.icon-icons.com/icons2/2108/PNG/512/discord_icon_130958.png' width='14'> [Discord](https://discord.com/users/815480311285547079) or <img src='https://cdn.icon-icons.com/icons2/836/PNG/512/Instagram_icon-icons.com_66804.png' width=14> [Instagram](https://www.instagram.com/_aadhu_07/)
 
-# About me on discord
+# Discord Profile
 [![Discord Presence](https://lanyard.cnrad.dev/api/815480311285547079)](https://discord.com/users/815480311285547079)
 
 ## :wrench: Interests
